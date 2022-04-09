@@ -1,1 +1,2 @@
 Artemiy abobus
+absolutno tochno
